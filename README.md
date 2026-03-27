@@ -12,4 +12,4 @@
 
 -----
 
-[TouhouDB](https://touhoudb.com/Ar/6212/songs) [THBWiki](https://thwiki.cc/LBQ)
+[TouhouDB](https://touhoudb.com/Ar/6212/songs)／[THBWiki](https://thwiki.cc/LBQ)
