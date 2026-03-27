@@ -9,3 +9,7 @@
 奇跡のカケラでさえ、惨劇の渦に沈みゆき——
 
 **うみねこのなく頃に 散る**
+
+-----
+
+[TouhouDB](https://touhoudb.com/Ar/6212/songs) [THBWiki](https://thwiki.cc/LBQ)
